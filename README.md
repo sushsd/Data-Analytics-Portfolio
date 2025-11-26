@@ -1,1 +1,1 @@
-# Data-Analytics-Portfolio
+# Aspiring Data Analyst driven by system integrity and business efficiency. My B.Sc. in Information Management provides the business context, while my M.Sc. High Integoirty Systems coursework ensures data validation and analysis are robust and reliable. This portfolio showcases my skills in action.
